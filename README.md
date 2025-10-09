@@ -1,7 +1,7 @@
 ## Hello! 🫡
 
 
-I'm Jeremy, a student majoring Digital Arts.😄
+I'm Jeremy, a student majoring in Digital Arts.😄
 
 --About Me--
 
