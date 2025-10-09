@@ -3,7 +3,7 @@
 
 I'm Jeremy, a student majoring Digital Arts.😄
 
---About Me 🫣--
+--About Me--
 
 👨🏻‍🎨 Digital Artist and Animator.
 
