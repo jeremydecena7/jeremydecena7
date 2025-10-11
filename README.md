@@ -18,6 +18,8 @@ I'm Jeremy, a student majoring in Digital Arts.😄
 
 <img width="3600" height="2480" alt="MR D" src="https://github.com/user-attachments/assets/21e206bc-e8df-4596-aebc-ba0f4e1418e4" />
 
+<img width="3840" height="2160" alt="character model" src="https://github.com/user-attachments/assets/eb436e8e-6fa9-45d3-86f8-9378015e052a" />
+
 <img width="1076" height="971" alt="Screenshot 2025-04-04 000210" src="https://github.com/user-attachments/assets/3a87a07b-6337-410d-b7a5-64f0d2da04d2" />
 
 <img width="2100" height="1300" alt="kidschool" src="https://github.com/user-attachments/assets/fa4424b4-889e-4ade-992c-edc3af174bdb" />
